@@ -1,2 +1,2 @@
 # lovethetime
-lovethetime repository
+Time has the power to change anything. Belive in time fellas!
